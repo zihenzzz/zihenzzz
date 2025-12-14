@@ -1,4 +1,3 @@
-🌟 Welcome to My World 🌟
 ✨ Daily Blessings
 May every morning bring you new hope,
 May every afternoon be filled with warm sunshine,
