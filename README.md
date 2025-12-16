@@ -20,5 +20,3 @@ May every night be accompanied by beautiful dreams.
 💧 Happiness flows like springs
 
 🌬️ Sorrow fades with the wind
-
-🌈 Happiness stays in heart forever
