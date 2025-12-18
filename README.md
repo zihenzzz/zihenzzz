@@ -6,7 +6,6 @@ May every night be accompanied by beautiful dreams.
 
 🌈 Daily Wishes
 🌼 For Every Day of Yours:
-😊 Smile often hangs at the corners of your mouth
 
 ✨ Stars always shine in your eyes
 
