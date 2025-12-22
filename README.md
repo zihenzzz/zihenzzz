@@ -1,7 +1,6 @@
 ✨ Daily Blessings
 May every morning bring you new hope,
 May every afternoon be filled with warm sunshine,
-May every dusk be painted with brilliant rosy glow,
 
 🌈 Daily Wishes
 🌼 For Every Day of Yours:
