@@ -1,5 +1,4 @@
 ✨ Daily Blessings
-May every morning bring you new hope,
 
 🌈 Daily Wishes
 🌼 For Every Day of Yours:
