@@ -1,6 +1,5 @@
 ✨ Daily Blessings
 
-🌈 Daily Wishes
 🌼 For Every Day of Yours:
 
 ✨ Stars always shine in your eyes
