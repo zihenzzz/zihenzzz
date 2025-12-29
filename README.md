@@ -12,5 +12,3 @@
 ☁️ Worries drift like clouds
 
 💧 Happiness flows like springs
-
-🌬️ Sorrow fades with the wind
