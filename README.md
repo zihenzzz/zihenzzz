@@ -11,4 +11,3 @@
 🍃 Let Go & Embrace:
 ☁️ Worries drift like clouds
 
-💧 Happiness flows like springs
